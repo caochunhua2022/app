@@ -38,9 +38,8 @@
 
 
 
-## 维护收集不易，大部分内容皆来自群友们和管理们的贡献，为了可持续发展，有能力的给一点支撑
 
-![image](https://vkceyugu.cdn.bspapp.com/VKCEYUGU-4a406456-63ac-413b-b1f6-27a6eed5945e/470b3993-dd1c-4050-a9bf-8b311264780a.png)
+
 
 
 
